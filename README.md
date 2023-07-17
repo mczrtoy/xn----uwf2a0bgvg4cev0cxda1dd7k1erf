@@ -52,6 +52,9 @@
   * 🐦 Twitter https://twitter.com/OnjiOnjira
   * ☎️ 0629137727
   * 🟩 Line https://line.me/R/ti/p/~y.yuy
+* ฐานิตา อินต๊ะแก้ว
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100086216943073
+  * 🟩 Line 0871800545
 * AliceNatcha
   * 🐦 Twitter https://twitter.com/AliceNatcha
   * ☎️ 0963733412
