@@ -2,16 +2,21 @@
 [![Awesome](https://awesome.re/badge-flat2.svg)](https://awesome.re)
 [![Twitter](https://img.shields.io/twitter/url?url=https%3A%2F%2Ftwitter.com%2Fi%2Flists%2F1680569394110373889&label=%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)](https://twitter.com/i/lists/1680569394110373889)
 
+[#นวด](https://twitter.com/search?q=%23%E0%B8%99%E0%B8%A7%E0%B8%94%20%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 [#นวดไทย](https://twitter.com/search?q=%23%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B9%84%E0%B8%97%E0%B8%A2%20%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
+[#นวดแผนไทย](https://twitter.com/search?q=%23%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B9%81%E0%B8%9C%E0%B8%99%E0%B9%84%E0%B8%97%E0%B8%A2%20%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 [#นวดออย](https://twitter.com/search?q=%23%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B8%AD%E0%B8%AD%E0%B8%A2%20%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 [#รับนวดภูเก็ต](https://twitter.com/search?q=%23%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 [#รับนวดในเมืองภูเก็ต](https://twitter.com/search?q=%23%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B9%83%E0%B8%99%E0%B9%80%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 
+## ร้านนวด
 * รุ่งนภานวดเพื่อสุขภาพ
   * 📍 ถนนหลวงพ่อ ภูเก็ต https://goo.gl/maps/VGSg3DHJKqNbgRMe9
   * 🐦 Twitter https://twitter.com/rungnap52419406
   * ☎️ 0926383174 รุ่ง
   * 🟩 Line https://line.me/R/ti/p/~Rungnapa131850
+
+## นวดอิสระ
 * นวดภูเก็ต
   * 🐦 Twitter https://twitter.com/nwd885849895656
   * ☎️ 0657705577
