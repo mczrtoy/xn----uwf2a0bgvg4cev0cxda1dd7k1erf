@@ -60,10 +60,25 @@
 * ฐานิตา อินต๊ะแก้ว
   * 🟦 Facebook https://www.facebook.com/profile.php?id=100086216943073
   * 🟩 Line 0871800545
+* น้องแนนนี่
+  * 🐦 Twitter https://twitter.com/nxngnan33414002
+  * 🟩 Line https://line.me/R/ti/p/~9857cc
+* มิ้วจัง น้องมิ้ว
+  * 🐦 Twitter https://twitter.com/mwcngnxngm2045
+  * 🟩 Line https://line.me/R/ti/p/~linlin3455
+* หมอโมเม
+  * 🐦 Twitter https://twitter.com/kphthrsrawn1
+  * ☎️ 0641849299
+  * 🟩 Line https://line.me/ti/p/bmTEdMrI3j
+* ชาลิสา หงษ์กิติ
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100083310968213
 * AliceNatcha
   * 🐦 Twitter https://twitter.com/AliceNatcha
   * ☎️ 0963733412
   * 🟩 Line https://line.me/R/ti/p/~tonkhao08
+* bb11762462
+  * 🐦 Twitter https://twitter.com/bb11762462
+  * 🟩 Line https://line.me/R/ti/p/~linlin3455
 * bbb703081164207
   * 🐦 Twitter https://twitter.com/bbb703081164207
   * 🟩 Line https://line.me/R/ti/p/~5151yy
@@ -76,6 +91,8 @@
   * 🐦 Twitter https://twitter.com/Dear7675418253
   * 🐦 Twitter https://twitter.com/hdjdjsndhd
   * 🟩 Line https://line.me/R/ti/p/~dear2.1982
+* kitty9822
+  * 🐦 Twitter https://twitter.com/kitty9822
 * lill09790744
   * 🐦 Twitter https://twitter.com/lill09790744
   * 🟩 Line https://line.me/R/ti/p/~u161718
@@ -99,6 +116,9 @@
 * Nong Por
   * 🐦 Twitter https://twitter.com/por2536Nong
   * ☎️ 0993643954
+* nachanana17
+  * 🐦 Twitter https://twitter.com/nachanana17
+  * 🟩 Line https://line.me/R/ti/p/~noinae252666
 * nunmis1
   * 🐦 Twitter https://twitter.com/nunmis1
   * 🟩 Line https://line.me/ti/p/4LCaKI1Byd
@@ -109,6 +129,10 @@
   * 🐦 Twitter https://twitter.com/cuthama86699363
   * ☎️ 0826030528
   * 🟩 Line 0826030528
+* RniPha86320
+  * 🐦 Twitter https://twitter.com/RniPha86320
+  * ☎️ 0635381578
+  * 🟩 Line https://line.me/R/ti/p/~jemme2542
 * Roojira Phuket
   * 🐦 Twitter https://twitter.com/PhuketRooj52075
   * ☎️ 0844612142
@@ -117,10 +141,9 @@
   * 🐦 Twitter https://twitter.com/sawhiy78020731
   * ☎️ 0630929724
   * 🟩 Line 0630929724
+* YacYuphi94938
+  * 🐦 Twitter https://twitter.com/YacYuphi94938
+  * 🟩 Line https://line.me/R/ti/p/~u161718
 * yai Baifern
   * 🐦 Twitter https://twitter.com/fern1152501
   * 🟩 Line https://line.me/R/ti/p/~lom113399
-* RniPha86320
-  * 🐦 Twitter https://twitter.com/RniPha86320
-  * ☎️ 0635381578
-  * 🟩 Line https://line.me/R/ti/p/~jemme2542
