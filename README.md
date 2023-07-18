@@ -17,7 +17,6 @@
   * 🟩 LINE https://line.me/R/ti/p/~Rungnapa131850
 
 ## นวดอิสระ
-
 * ฟางๆ
   * 🐦 Twitter https://twitter.com/ThyaPa50055
   * ☎️ 0941969341
@@ -130,6 +129,11 @@
   * 🐦 Twitter https://twitter.com/nwdphuketr39597
   * ☎️ 0653907658
   * 🟩 LINE 0653907658
+* mimi
+  * 🐦 Twitter https://twitter.com/may22449
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100090115477136
+  * ☎️ 0629399441
+  * 🟩 LINE https://line.me/R/ti/p/~aj224499
 * na38696067
   * 🐦 Twitter https://twitter.com/na38696067
   * ☎️ 0941349031
