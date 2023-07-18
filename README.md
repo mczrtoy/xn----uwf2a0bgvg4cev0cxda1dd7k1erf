@@ -48,7 +48,7 @@
   * ☎️ 0629137727
   * 🟩 LINE https://line.me/R/ti/p/~y.yuy
 * ฐานิตา อินต๊ะแก้ว
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100086216943073
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100086216943073
   * 🟩 LINE 0871800545
 * น้องแนนนี่
   * 🐦 Twitter https://twitter.com/nxngnan33414002
@@ -68,26 +68,31 @@
   * 🐦 Twitter https://twitter.com/chlhich13530476
   * 🟩 LINE https://line.me/R/ti/p/@014zvjsk
 * ชาลิสา หงษ์กิติ
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100083310968213
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100083310968213
 * จีน่า นิภาพร
   * 🐦 Twitter https://twitter.com/rabngan70225377
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100091345293019
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100091345293019
   * 🟩 LINE https://line.me/R/ti/p/~bbb11
 * บัวลอย ไข่หวาน
   * 🐦 Twitter https://twitter.com/CibPhuket13234
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100057310994216
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100057310994216
   * 🟩 LINE https://line.me/R/ti/p/~mayy7979
 * น้ำขิง
   * 🐦 Twitter https://twitter.com/nakhing1093761
   * 🟩 LINE https://line.me/R/ti/p/~8818nnn
 * ปลายฝน เธอสนไหม
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100089509766023
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100089509766023
   * ☎️ 0980468973
   * 🟩 LINE https://line.me/R/ti/p/~tawa252777
 * AliceNatcha
   * 🐦 Twitter https://twitter.com/AliceNatcha
   * ☎️ 0963733412
   * 🟩 LINE https://line.me/R/ti/p/~tonkhao08
+* Annie
+  * 🐦 Twitter https://twitter.com/Annie89333702
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100086130503297
+  * ☎️ 0624396979
+  * 🟩 LINE https://line.me/R/ti/p/~sopidasopida
 * bb11762462
   * 🐦 Twitter https://twitter.com/bb11762462
   * 🟩 LINE https://line.me/R/ti/p/~linlin3455
@@ -96,7 +101,7 @@
   * 🟩 LINE https://line.me/R/ti/p/~5151yy
 * Beem
   * 🐦 Twitter https://twitter.com/run_nity71940
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100091441020637
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100091441020637
   * ☎️ 0831653506
   * 🟩 LINE https://line.me/R/ti/p/~kitty4638
 * caeng5646452851
@@ -122,7 +127,7 @@
   * 🐦 Twitter https://twitter.com/mai09186563
 * Massage By.Nitty 🌈🐰
   * 🐦 Twitter https://twitter.com/nit_massage
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100063758865288
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100063758865288
   * ☎️ 0966545592
   * 🟩 LINE https://line.me/ti/p/e1W9355Xg1
 * massage Hatyai
@@ -131,7 +136,7 @@
   * 🟩 LINE 0653907658
 * mimi
   * 🐦 Twitter https://twitter.com/may22449
-  * 🟦 Facebook https://www.facebook.com/profile.php?id=100090115477136
+  * 🔵 Facebook https://www.facebook.com/profile.php?id=100090115477136
   * ☎️ 0629399441
   * 🟩 LINE https://line.me/R/ti/p/~aj224499
 * na38696067
