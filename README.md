@@ -24,6 +24,7 @@
   * 🟩 LINE 0941969341
 * ยัยตัวร้าย เบียร์
   * 🐦 Twitter https://twitter.com/beer142526
+  * 🐦 Twitter https://twitter.com/suwrrn_khnis
   * ☎️ 0937805141
   * 🟩 LINE 0937805141
 * ให้ฉันรอ แล้วได้อะไร
@@ -39,10 +40,6 @@
   * 🐦 Twitter https://twitter.com/spicy9895
   * 🟩 LINE https://line.me/R/ti/p/~pattriya88
   * 🟩 LINE https://line.me/R/ti/p/~pattriya888
-* น้องฟ้า
-  * 🐦 Twitter https://twitter.com/suwrrn_khnis
-  * ☎️ 0937805141
-  * 🟩 LINE 0937805141
 * เป้เป้
   * 🐦 Twitter https://twitter.com/SudaratTepsan
   * ☎️ 0888226646
@@ -84,6 +81,10 @@
 * น้ำขิง
   * 🐦 Twitter https://twitter.com/nakhing1093761
   * 🟩 LINE https://line.me/R/ti/p/~8818nnn
+* ปลายฝน เธอสนไหม
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100089509766023
+  * ☎️ 0980468973
+  * 🟩 LINE https://line.me/R/ti/p/~tawa252777
 * AliceNatcha
   * 🐦 Twitter https://twitter.com/AliceNatcha
   * ☎️ 0963733412
@@ -94,6 +95,11 @@
 * bbb703081164207
   * 🐦 Twitter https://twitter.com/bbb703081164207
   * 🟩 LINE https://line.me/R/ti/p/~5151yy
+* Beem
+  * 🐦 Twitter https://twitter.com/run_nity71940
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100091441020637
+  * ☎️ 0831653506
+  * 🟩 LINE https://line.me/R/ti/p/~kitty4638
 * caeng5646452851
   * 🐦 Twitter https://twitter.com/caeng5646452851
   * 🐦 Twitter https://twitter.com/CSukh26516
@@ -111,11 +117,13 @@
   * 🐦 Twitter https://twitter.com/kitty9822
 * lill09790744
   * 🐦 Twitter https://twitter.com/lill09790744
+  * 🐦 Twitter https://twitter.com/YacYuphi94938
   * 🟩 LINE https://line.me/R/ti/p/~u161718
 * mai
   * 🐦 Twitter https://twitter.com/mai09186563
 * Massage By.Nitty 🌈🐰
   * 🐦 Twitter https://twitter.com/nit_massage
+  * 🟦 Facebook https://www.facebook.com/profile.php?id=100063758865288
   * ☎️ 0966545592
   * 🟩 LINE https://line.me/ti/p/e1W9355Xg1
 * massage Hatyai
@@ -134,6 +142,7 @@
   * ☎️ 0993643954
 * nachanana17
   * 🐦 Twitter https://twitter.com/nachanana17
+  * 🐦 Twitter https://twitter.com/sorya4954
   * 🟩 LINE https://line.me/R/ti/p/~noinae252666
 * nampun
   * 🐦 Twitter https://twitter.com/PhoneP79704
@@ -174,9 +183,6 @@
   * 🐦 Twitter https://twitter.com/sawhiy78020731
   * ☎️ 0630929724
   * 🟩 LINE 0630929724
-* YacYuphi94938
-  * 🐦 Twitter https://twitter.com/YacYuphi94938
-  * 🟩 LINE https://line.me/R/ti/p/~u161718
 * yai Baifern
   * 🐦 Twitter https://twitter.com/fern1152501
   * 🟩 LINE https://line.me/R/ti/p/~lom113399
