@@ -17,17 +17,11 @@
   * 🟩 LINE https://line.me/R/ti/p/~Rungnapa131850
 
 ## นวดอิสระ
-* นวดภูเก็ต
-  * 🐦 Twitter https://twitter.com/nwd885849895656
-  * ☎️ 0657705577
+
 * ฟางๆ
   * 🐦 Twitter https://twitter.com/ThyaPa50055
   * ☎️ 0941969341
   * 🟩 LINE 0941969341
-* นวดภูเก็ต
-  * 🐦 Twitter https://twitter.com/nmaathak
-  * 🐦 Twitter https://twitter.com/aor444444
-  * 🟩 LINE https://line.me/ti/p/M9zoke7Nfh
 * ยัยตัวร้าย เบียร์
   * 🐦 Twitter https://twitter.com/beer142526
   * ☎️ 0937805141
@@ -145,12 +139,19 @@
   * 🐦 Twitter https://twitter.com/PhoneP79704
   * ☎️ 0907994981
   * 🟩 LINE https://line.me/R/ti/p/~poppenum
+* nmaathak
+  * 🐦 Twitter https://twitter.com/nmaathak
+  * 🐦 Twitter https://twitter.com/aor444444
+  * 🟩 LINE https://line.me/ti/p/M9zoke7Nfh
 * nunmis1
   * 🐦 Twitter https://twitter.com/nunmis1
   * 🟩 LINE https://line.me/ti/p/4LCaKI1Byd
 * Nutnut Nutnutนัท
   * 🐦 Twitter https://twitter.com/TanyapornBoont1
   * 🟩 LINE https://line.me/R/ti/p/~nut3659kkkk
+* nwd885849895656
+  * 🐦 Twitter https://twitter.com/nwd885849895656
+  * ☎️ 0657705577
 * oil oil
   * 🐦 Twitter https://twitter.com/cuthama86699363
   * ☎️ 0826030528
