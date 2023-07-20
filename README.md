@@ -11,28 +11,28 @@
 
 ### ร้านนวด
 * [รุ่งนภานวดเพื่อสุขภาพ](https://mczrtoy.github.io/rungnapha-massage.html)
-  * 📍 ถนนหลวงพ่อ อำเภอเมืองภูเก็ต ภูเก็ต [https://goo.gl/maps/VGSg3DHJKqNbgRMe9](https://goo.gl/maps/VGSg3DHJKqNbgRMe9)
+  * 📍 [62/3 ถนนหลวงพ่อ อำเภอเมืองภูเก็ต ภูเก็ต](https://goo.gl/maps/VGSg3DHJKqNbgRMe9)
   * 🐦 Twitter [https://twitter.com/rungnap52419406](https://twitter.com/rungnap52419406)
-  * ☎️ 0926383174 รุ่ง
+  * ☎️ [0926383174](tel:+66926383174) รุ่ง
   * 🟩 LINE [https://line.me/R/ti/p/~Rungnapa131850](https://line.me/R/ti/p/~Rungnapa131850)
 
 ### นวดอิสระ
 * ฟางๆ
   * 🐦 Twitter [https://twitter.com/ThyaPa50055](https://twitter.com/ThyaPa50055)
-  * ☎️ 0941969341
+  * ☎️ [0941969341](tel:+66941969341)
   * 🟩 LINE 0941969341
 * ยัยตัวร้าย เบียร์
   * 🐦 Twitter [https://twitter.com/beer142526](https://twitter.com/beer142526)
   * 🐦 Twitter [https://twitter.com/suwrrn_khnis](https://twitter.com/suwrrn_khnis)
-  * ☎️ 0937805141
+  * ☎️ [0937805141](tel:+66937805141)
   * 🟩 LINE 0937805141
 * ให้ฉันรอ แล้วได้อะไร
   * 🐦 Twitter [https://twitter.com/NanaZa730622438](https://twitter.com/NanaZa730622438)
-  * ☎️ 0923757782
+  * ☎️ [0923757782](tel:+66923757782)
   * 🟩 LINE [https://line.me/R/ti/p/~bunthira2529](https://line.me/R/ti/p/~bunthira2529)
 * พี่แดง
   * 🐦 Twitter [https://twitter.com/nwd_phi](https://twitter.com/nwd_phi)
-  * ☎️ 0884008550
+  * ☎️ [0884008550](tel:+66884008550)
   * 🟩 LINE [https://line.me/R/ti/p/~pinyai50](https://line.me/R/ti/p/~pinyai50)
 * 🍊เปรี้ยว เปรี้ยว🍊
   * 🐦 Twitter [https://twitter.com/Pattriya1277](https://twitter.com/Pattriya1277)
@@ -41,11 +41,11 @@
   * 🟩 LINE [https://line.me/R/ti/p/~pattriya888](https://line.me/R/ti/p/~pattriya888)
 * เป้เป้
   * 🐦 Twitter [https://twitter.com/SudaratTepsan](https://twitter.com/SudaratTepsan)
-  * ☎️ 0888226646
+  * ☎️ [0888226646](tel:+66888226646)
   * 🟩 LINE [https://line.me/R/ti/p/~s.udarat.83](https://line.me/R/ti/p/~s.udarat.83)
 * 💓น้ำ💓
   * 🐦 Twitter [https://twitter.com/OnjiOnjira](https://twitter.com/OnjiOnjira)
-  * ☎️ 0629137727
+  * ☎️ [0629137727](tel:+66629137727)
   * 🟩 LINE [https://line.me/R/ti/p/~y.yuy](https://line.me/R/ti/p/~y.yuy)
 * ฐานิตา อินต๊ะแก้ว
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100086216943073](https://www.facebook.com/profile.php?id=100086216943073)
@@ -60,11 +60,11 @@
   * 🟩 LINE [https://line.me/R/ti/p/~linlin3455](https://line.me/R/ti/p/~linlin3455)
 * หมอโมเม
   * 🐦 Twitter [https://twitter.com/kphthrsrawn1](https://twitter.com/kphthrsrawn1)
-  * ☎️ 0641849299
+  * ☎️ [0641849299](tel:+66641849299)
   * 🟩 LINE [https://line.me/ti/p/bmTEdMrI3j](https://line.me/ti/p/bmTEdMrI3j)
 * ♥️โมนานวดภูเก็ต♥️
   * 🐦 Twitter [https://twitter.com/KThiengtro97182](https://twitter.com/KThiengtro97182)
-  * ☎️ 0837742747
+  * ☎️ [0837742747](tel:+66837742747)
   * 🟩 LINE [https://line.me/R/ti/p/~1khemjira](https://line.me/R/ti/p/~1khemjira)
 * น้ำ
   * 🐦 Twitter [https://twitter.com/chlhich13530476](https://twitter.com/chlhich13530476)
@@ -84,16 +84,16 @@
   * 🟩 LINE [https://line.me/R/ti/p/~8818nnn](https://line.me/R/ti/p/~8818nnn)
 * ปลายฝน เธอสนไหม
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100089509766023](https://www.facebook.com/profile.php?id=100089509766023)
-  * ☎️ 0980468973
+  * ☎️ [0980468973](tel:+66980468973)
   * 🟩 LINE [https://line.me/R/ti/p/~tawa252777](https://line.me/R/ti/p/~tawa252777)
 * AliceNatcha
   * 🐦 Twitter [https://twitter.com/AliceNatcha](https://twitter.com/AliceNatcha)
-  * ☎️ 0963733412
+  * ☎️ [0963733412](tel:+66963733412)
   * 🟩 LINE [https://line.me/R/ti/p/~tonkhao08](https://line.me/R/ti/p/~tonkhao08)
 * Annie
   * 🐦 Twitter [https://twitter.com/Annie89333702](https://twitter.com/Annie89333702)
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100086130503297](https://www.facebook.com/profile.php?id=100086130503297)
-  * ☎️ 0624396979
+  * ☎️ [0624396979](tel:+66624396979)
   * 🟩 LINE [https://line.me/R/ti/p/~sopidasopida](https://line.me/R/ti/p/~sopidasopida)
 * bbb703081164207
   * 🐦 Twitter [https://twitter.com/bbb703081164207](https://twitter.com/bbb703081164207)
@@ -101,12 +101,12 @@
 * Beem
   * 🐦 Twitter [https://twitter.com/run_nity71940](https://twitter.com/run_nity71940)
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100091441020637](https://www.facebook.com/profile.php?id=100091441020637)
-  * ☎️ 0831653506
+  * ☎️ [0831653506](tel:+66831653506)
   * 🟩 LINE [https://line.me/R/ti/p/~kitty4638](https://line.me/R/ti/p/~kitty4638)
 * caeng5646452851
   * 🐦 Twitter [https://twitter.com/caeng5646452851](https://twitter.com/caeng5646452851)
   * 🐦 Twitter [https://twitter.com/CSukh26516](https://twitter.com/CSukh26516)
-  * ☎️ 0982966327
+  * ☎️ [0982966327](tel:+66982966327)
   * 🟩 LINE [https://line.me/R/ti/p/~jeno2565](https://line.me/R/ti/p/~jeno2565)
 * 💙D.Dear💙
   * 🐦 Twitter [https://twitter.com/Dear7675418253](https://twitter.com/Dear7675418253)
@@ -114,7 +114,7 @@
   * 🟩 LINE [https://line.me/R/ti/p/~dear2.1982](https://line.me/R/ti/p/~dear2.1982)
 * Hongthong
   * 🐦 Twitter [https://twitter.com/SuthidaHong0738](https://twitter.com/SuthidaHong0738)
-  * ☎️ 0640341104
+  * ☎️ [0640341104](tel:+66640341104)
   * 🟩 LINE [https://line.me/R/ti/p/~hongpond0713](https://line.me/R/ti/p/~hongpond0713)
 * kitty9822
   * 🐦 Twitter [https://twitter.com/kitty9822](https://twitter.com/kitty9822)
@@ -127,34 +127,34 @@
 * Massage By.Nitty 🌈🐰
   * 🐦 Twitter [https://twitter.com/nit_massage](https://twitter.com/nit_massage)
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100063758865288](https://www.facebook.com/profile.php?id=100063758865288)
-  * ☎️ 0966545592
+  * ☎️ [0966545592](tel:+66966545592)
   * 🟩 LINE [https://line.me/ti/p/e1W9355Xg1](https://line.me/ti/p/e1W9355Xg1)
 * massage Hatyai
   * 🐦 Twitter [https://twitter.com/nwdphuketr39597](https://twitter.com/nwdphuketr39597)
-  * ☎️ 0653907658
+  * ☎️ [0653907658](tel:+66653907658)
   * 🟩 LINE 0653907658
 * mimi
   * 🐦 Twitter [https://twitter.com/may22449](https://twitter.com/may22449)
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100090115477136](https://www.facebook.com/profile.php?id=100090115477136)
-  * ☎️ 0629399441
+  * ☎️ [0629399441](tel:+66629399441)
   * 🟩 LINE [https://line.me/R/ti/p/~aj224499](https://line.me/R/ti/p/~aj224499)
 * na38696067
   * 🐦 Twitter [https://twitter.com/na38696067](https://twitter.com/na38696067)
-  * ☎️ 0941349031
+  * ☎️ [0941349031](tel:+66941349031)
   * 🟩 LINE 0941349031
 * Nan
   * 🐦 Twitter [https://twitter.com/Nan789p](https://twitter.com/Nan789p)
   * 🟩 LINE [https://line.me/R/ti/p/~nan6754](https://line.me/R/ti/p/~nan6754)
 * Nong Por
   * 🐦 Twitter [https://twitter.com/por2536Nong](https://twitter.com/por2536Nong)
-  * ☎️ 0993643954
+  * ☎️ [0993643954](tel:+66993643954)
 * nachanana17
   * 🐦 Twitter [https://twitter.com/nachanana17](https://twitter.com/nachanana17)
   * 🐦 Twitter [https://twitter.com/sorya4954](https://twitter.com/sorya4954)
   * 🟩 LINE [https://line.me/R/ti/p/~noinae252666](https://line.me/R/ti/p/~noinae252666)
 * nampun
   * 🐦 Twitter [https://twitter.com/PhoneP79704](https://twitter.com/PhoneP79704)
-  * ☎️ 0907994981
+  * ☎️ [0907994981](tel:+66907994981)
   * 🟩 LINE [https://line.me/R/ti/p/~poppenum](https://line.me/R/ti/p/~poppenum)
 * nmaathak
   * 🐦 Twitter [https://twitter.com/nmaathak](https://twitter.com/nmaathak)
@@ -168,10 +168,10 @@
   * 🟩 LINE [https://line.me/R/ti/p/~nut3659kkkk](https://line.me/R/ti/p/~nut3659kkkk)
 * nwd885849895656
   * 🐦 Twitter [https://twitter.com/nwd885849895656](https://twitter.com/nwd885849895656)
-  * ☎️ 0657705577
+  * ☎️ [0657705577](tel:+66657705577)
 * oil oil
   * 🐦 Twitter [https://twitter.com/cuthama86699363](https://twitter.com/cuthama86699363)
-  * ☎️ 0826030528
+  * ☎️ [0826030528](tel:+66826030528)
   * 🟩 LINE 0826030528
 * rbngnph21940845
   * 🐦 Twitter [https://twitter.com/rbngnph21940845](https://twitter.com/rbngnph21940845)
@@ -181,15 +181,15 @@
   * 🟩 LINE [https://line.me/R/ti/p/~bovi1199](https://line.me/R/ti/p/~bovi1199)
 * RniPha86320
   * 🐦 Twitter [https://twitter.com/RniPha86320](https://twitter.com/RniPha86320)
-  * ☎️ 0635381578
+  * ☎️ [0635381578](tel:+66635381578)
   * 🟩 LINE [https://line.me/R/ti/p/~jemme2542](https://line.me/R/ti/p/~jemme2542)
 * Roojira Phuket
   * 🐦 Twitter [https://twitter.com/PhuketRooj52075](https://twitter.com/PhuketRooj52075)
-  * ☎️ 0844612142
+  * ☎️ [0844612142](tel:+66844612142)
   * 🟩 LINE 0844612142
 * sawhiy78020731
   * 🐦 Twitter [https://twitter.com/sawhiy78020731](https://twitter.com/sawhiy78020731)
-  * ☎️ 0630929724
+  * ☎️ [0630929724](tel:+66630929724)
   * 🟩 LINE 0630929724
 * yai Baifern
   * 🐦 Twitter [https://twitter.com/fern1152501](https://twitter.com/fern1152501)
