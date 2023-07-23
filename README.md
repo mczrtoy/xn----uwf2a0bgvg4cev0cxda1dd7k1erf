@@ -86,6 +86,10 @@
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100089509766023](https://www.facebook.com/profile.php?id=100089509766023)
   * ☎️ [0980468973](tel:+66980468973)
   * 🟩 LINE [tawa252777](https://line.me/R/ti/p/~tawa252777)
+* แจง
+  * 🐦 Twitter [https://twitter.com/KrittiyaPolyeam](https://twitter.com/KrittiyaPolyeam)
+  * ☎️ [0657699798](tel:+66657699798)
+  * 🟩 LINE [0657699798](https://line.me/R/ti/p/@711tpzcy)
 * AliceNatcha
   * 🐦 Twitter [https://twitter.com/AliceNatcha](https://twitter.com/AliceNatcha)
   * ☎️ [0963733412](tel:+66963733412)
@@ -108,6 +112,11 @@
   * 🐦 Twitter [https://twitter.com/CSukh26516](https://twitter.com/CSukh26516)
   * ☎️ [0982966327](tel:+66982966327)
   * 🟩 LINE [jeno2565](https://line.me/R/ti/p/~jeno2565)
+* Chioma165987
+  * 🐦 Twitter [https://twitter.com/Chioma165987](https://twitter.com/Chioma165987)
+  * 🔵 Facebook [https://www.facebook.com/profile.php?id=100075965402170](https://www.facebook.com/profile.php?id=100075965402170)
+  * ☎️ [0988935635](tel:+66988935635)
+  * 🟩 LINE [lucky7891656](https://line.me/R/ti/p/~lucky7891656)
 * 💙D.Dear💙
   * 🐦 Twitter [https://twitter.com/Dear7675418253](https://twitter.com/Dear7675418253)
   * 🐦 Twitter [https://twitter.com/hdjdjsndhd](https://twitter.com/hdjdjsndhd)
