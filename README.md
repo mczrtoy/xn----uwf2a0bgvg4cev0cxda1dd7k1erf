@@ -90,6 +90,14 @@
   * 🐦 Twitter [https://twitter.com/KrittiyaPolyeam](https://twitter.com/KrittiyaPolyeam)
   * ☎️ [0657699798](tel:+66657699798)
   * 🟩 LINE [0657699798](https://line.me/R/ti/p/@711tpzcy)
+* พิ้งกี้
+  * 🐦 Twitter [https://twitter.com/phngk85750171](https://twitter.com/phngk85750171)
+  * 🔵 Facebook [https://www.facebook.com/profile.php?id=100091789507093](https://www.facebook.com/profile.php?id=100091789507093)
+  * ☎️ [0953486528](tel:+666953486528)
+  * 🟩 LINE [pinky140527](https://line.me/R/ti/p/~pinky140527)
+* เพ็ญ เพ็ญ
+  * 🐦 Twitter [https://twitter.com/Nnnn12158469260](https://twitter.com/Nnnn12158469260)
+  * 🟩 LINE [forfuture880](https://line.me/R/ti/p/~forfuture880)
 * AliceNatcha
   * 🐦 Twitter [https://twitter.com/AliceNatcha](https://twitter.com/AliceNatcha)
   * ☎️ [0963733412](tel:+66963733412)
