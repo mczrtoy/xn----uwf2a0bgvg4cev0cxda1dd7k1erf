@@ -10,7 +10,7 @@
 [#รับนวดในเมืองภูเก็ต](https://twitter.com/search?q=%23%E0%B8%A3%E0%B8%B1%E0%B8%9A%E0%B8%99%E0%B8%A7%E0%B8%94%E0%B9%83%E0%B8%99%E0%B9%80%E0%B8%A1%E0%B8%B7%E0%B8%AD%E0%B8%87%E0%B8%A0%E0%B8%B9%E0%B9%80%E0%B8%81%E0%B9%87%E0%B8%95)
 
 ### ร้านนวด
-* [รุ่งนภานวดเพื่อสุขภาพ](https://mczrtoy.github.io/rungnapha-massage.html)
+* รุ่งนภานวดเพื่อสุขภาพ
   * 📍 [62/3 ถนนหลวงพ่อ อำเภอเมืองภูเก็ต ภูเก็ต](https://goo.gl/maps/VGSg3DHJKqNbgRMe9)
   * 🐦 Twitter [https://twitter.com/rungnap52419406](https://twitter.com/rungnap52419406)
   * ☎️ [0926383174](tel:+66926383174) รุ่ง
@@ -98,6 +98,9 @@
 * เพ็ญ เพ็ญ
   * 🐦 Twitter [https://twitter.com/Nnnn12158469260](https://twitter.com/Nnnn12158469260)
   * 🟩 LINE [forfuture880](https://line.me/R/ti/p/~forfuture880)
+* กุ๊กกิ๊ก
+  * 🐦 Twitter [https://twitter.com/khanuenglove](https://twitter.com/khanuenglove)
+  * 🟩 LINE [khanueng2537](https://line.me/R/ti/p/~khanueng2537)
 * AliceNatcha
   * 🐦 Twitter [https://twitter.com/AliceNatcha](https://twitter.com/AliceNatcha)
   * ☎️ [0963733412](tel:+66963733412)
@@ -133,6 +136,13 @@
   * 🐦 Twitter [https://twitter.com/SuthidaHong0738](https://twitter.com/SuthidaHong0738)
   * ☎️ [0640341104](tel:+66640341104)
   * 🟩 LINE [hongpond0713](https://line.me/R/ti/p/~hongpond0713)
+* ice71178
+  * 🐦 Twitter [https://twitter.com/ice71178175760](https://twitter.com/ice71178175760)
+  * 🟩 LINE [sbai71178](https://line.me/R/ti/p/~sbai71178)
+* ❤Ing fah❤
+  * 🐦 Twitter [https://twitter.com/Ingfah0301](https://twitter.com/Ingfah0301)
+  * ☎️ [0820311492](tel:+660820311492)
+  * 🟩 LINE [a.m.3.0.1](https://line.me/ti/p/K9hYpJWkbi)
 * kitty9822
   * 🐦 Twitter [https://twitter.com/kitty9822](https://twitter.com/kitty9822)
 * lill09790744
@@ -142,10 +152,15 @@
 * mai
   * 🐦 Twitter [https://twitter.com/mai09186563](https://twitter.com/mai09186563)
 * Marie
+  * 🐦 Twitter [https://twitter.com/eziqzxmqjw765](https://twitter.com/eziqzxmqjw765)
   * 🐦 Twitter [https://twitter.com/sounwootbz](https://twitter.com/sounwootbz)
+  * 🐦 Twitter [https://twitter.com/tqwocsimmvw652](https://twitter.com/tqwocsimmvw652)
+  * 🐦 Twitter [https://twitter.com/yydvarswttpm455](https://twitter.com/yydvarswttpm455)
   * 🟩 LINE [sexxy84](https://line.me/R/ti/p/~sexxy84)
 * Massage By.Nitty 🌈🐰
   * 🐦 Twitter [https://twitter.com/nit_massage](https://twitter.com/nit_massage)
+  * 🐦 Twitter [https://twitter.com/NYang7202](https://twitter.com/NYang7202)
+  * 🔵 Facebook [https://www.facebook.com/nong.flin](https://www.facebook.com/nong.flin)
   * 🔵 Facebook [https://www.facebook.com/profile.php?id=100063758865288](https://www.facebook.com/profile.php?id=100063758865288)
   * ☎️ [0966545592](tel:+66966545592)
   * 🟩 LINE [https://line.me/ti/p/e1W9355Xg1](https://line.me/ti/p/e1W9355Xg1)
@@ -165,9 +180,6 @@
 * Nan
   * 🐦 Twitter [https://twitter.com/Nan789p](https://twitter.com/Nan789p)
   * 🟩 LINE [nan6754](https://line.me/R/ti/p/~nan6754)
-* Nong Por
-  * 🐦 Twitter [https://twitter.com/por2536Nong](https://twitter.com/por2536Nong)
-  * ☎️ [0993643954](tel:+66993643954)
 * nachanana17
   * 🐦 Twitter [https://twitter.com/nachanana17](https://twitter.com/nachanana17)
   * 🐦 Twitter [https://twitter.com/sorya4954](https://twitter.com/sorya4954)
@@ -187,6 +199,9 @@
   * 🐦 Twitter [https://twitter.com/nmaathak](https://twitter.com/nmaathak)
   * 🐦 Twitter [https://twitter.com/aor444444](https://twitter.com/aor444444)
   * 🟩 LINE [https://line.me/ti/p/M9zoke7Nfh](https://line.me/ti/p/M9zoke7Nfh)
+* Nong Por
+  * 🐦 Twitter [https://twitter.com/por2536Nong](https://twitter.com/por2536Nong)
+  * ☎️ [0993643954](tel:+66993643954)
 * nunmis1
   * 🐦 Twitter [https://twitter.com/nunmis1](https://twitter.com/nunmis1)
   * 🟩 LINE [https://line.me/ti/p/4LCaKI1Byd](https://line.me/ti/p/4LCaKI1Byd)
